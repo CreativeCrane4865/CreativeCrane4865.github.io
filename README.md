@@ -1,4 +1,4 @@
-# CreativeCrane4865.github.io
+# Reptar Proxy
 This is the reptar proxy freshly made by yours truly
 This file is just here to piss some people off it doesnt actually work but heres the bee movie script
 Skip to content
